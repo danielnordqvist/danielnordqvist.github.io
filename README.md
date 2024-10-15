@@ -1,1 +1,0 @@
-# danielnordqvist.github.io
